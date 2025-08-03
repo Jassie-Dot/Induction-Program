@@ -20,15 +20,24 @@
 
 # DAY -2 (1 August 2025)
 
-From exploring values to assessing skills, the day was packed with purpose!
+## From exploring values to assessing skills, the day was packed with purpose!
 
 ## Expert Talks:
 - Dr. Priya Darshni on “Universal Human Values - 1”
 - Dr. Arvind Dhingra on student development via STEP & TAC
-- Dr. Arashdeep Singh on “Food: A Pivotal Role in Student’s Overall Wellness”
+- Dr. Arashdeep Singh on “Food: A Pivotal Role in Student’s Overall Wellness".
+English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
+Buddy4Study team guided students on scholarship opportunities for 1st year.
+Together, we continue shaping a journey of purpose, learning, and well-being! 💫
 
-- English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
+# Day 3(2 August 2025)
 
-- Buddy4Study team guided students on scholarship opportunities for 1st year.
+## A day full of inspiration, interaction, and introspection for our CSE & IT freshers!
 
-- Together, we continue shaping a journey of purpose, learning, and well-being! 
+-  Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
+-  Dr. Priya Darshni continued with “Universal Human Values - 1”, enriching young minds with clarity and purpose.
+-  Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
+- Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
+
+## Learning, laughter, and self-discovery — all rolled into one powerful day! 💫
+- As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry.
