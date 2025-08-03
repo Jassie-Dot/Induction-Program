@@ -1,2 +1,2 @@
 # Induction-Program
-~ hello
+- hello
