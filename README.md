@@ -1,4 +1,4 @@
-### DAY-1 (31 July 2025)
+## DAY-1 (31 July 2025)
 
 - Hi, myself Jaskaranveer singh pursuing first year B.Tech in Information Technology, I was little excited that how will my first day of college will go.
 - A warm and inspiring welcome was given to students of B.Tech Computer Science and Engineering(CSE) and B.Tech Information Technology(IT) at Guru Nanak Dev Engineering College,Ludhiana.
@@ -18,7 +18,7 @@
 
 - The event conculded with a Vote of Thanks by Dr. K.S Maan.
 
-### DAY -2 (1 August 2025)
+## DAY -2 (1 August 2025)
 
 From exploring values to assessing skills, the day was packed with purpose!
 
