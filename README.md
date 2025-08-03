@@ -27,7 +27,7 @@ From exploring values to assessing skills, the day was packed with purpose!
 - Dr. Arvind Dhingra on student development via STEP & TAC
 - Dr. Arashdeep Singh on “Food: A Pivotal Role in Student’s Overall Wellness”
 
-## English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
+- English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
 
 - Buddy4Study team guided students on scholarship opportunities for 1st year.
 
