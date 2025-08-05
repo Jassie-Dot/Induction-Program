@@ -41,3 +41,29 @@ Together, we continue shaping a journey of purpose, learning, and well-being! �
 
 ## Learning, laughter, and self-discovery — all rolled into one powerful day! 💫
 - As Day-3 was little exuasting for me because there where continous presentations by profs although I was hungry.
+
+# Day 4(4 August 2025)
+
+## 🌟 Morning Session
+From **9:30 AM to 10:30 AM**, we attended an engaging **English Lecture** delivered by **Prof. Aastik Sharma**.  
+His teaching style made the session lively and informative, encouraging active participation from the students.
+
+---
+
+## 🔬 Science Hour
+Following that, from **10:30 AM to 11:30 AM**, we had a **Chemistry Lecture** by **Prof. Karan Bhalla**.  
+The lecture was filled with practical insights and real-world applications, making complex concepts easy to understand.
+
+---
+
+## ☕ Refresh & Recharge
+From **11:30 AM to 12:30 PM**, we had our **break time** — a chance to relax, interact with peers, and recharge for the upcoming sessions.
+
+---
+
+## 🎤 Expert Lecture
+The highlight of the day was from **12:30 PM to 2:30 PM** — an inspiring **Expert Lecture** on *"Universal Human Values - 2"*  
+conducted by **Dr. Priya Darshani Madam** in the **Auditorium**.  
+Her words left a lasting impression, reminding us of the importance of values in both personal and professional life.
+
+---
