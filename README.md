@@ -67,7 +67,7 @@ conducted by **Dr. Priya Darshani Madam** in the **Auditorium**.
 Her words left a lasting impression, reminding us of the importance of values in both personal and professional life.
 
 ---
-# Day 5( August 2025)
+# Day 5(5 August 2025)
 ## ✨ A Journey of Learning and Inspiration
 
 On this remarkable day, our college timetable unfolded into a blend of learning, interaction, and surprise moments that kept the energy alive. Here’s how the day went:
@@ -96,3 +96,53 @@ The professor’s approach was refreshing, turning the unexpected change into an
 
 ## 💡 **Conclusion**
 The day was a beautiful reminder that learning is not just about sticking to a timetable — it’s about embracing every opportunity, expected or unexpected, and making the most of it.
+
+# Day 6(6 August 2025)
+
+## 📅 Overview  
+The sixth day of the Induction Program at **Guru Nanak Dev Engineering College, Ludhiana** was a mix of academic learning, expert insights, and campus exploration. While some sessions were engaging and informative, others felt a bit slow and monotonous.  
+
+---
+
+## 🧮 9:30 AM – 10:30 AM | Mathematics Lecture – Mechanical Engineering Seminar Hall  
+The day began with a **Mathematics Lecture** in the Mechanical Engineering Seminar Hall.  
+The faculty introduced themselves and shared details about various **mathematics tools and applications** such as:  
+- **Desmos** – An interactive graphing tool for mathematical visualization.  
+- **GeoGebra** – A dynamic mathematics software for geometry, algebra, and calculus.  
+
+In addition to the technical content, the speaker also shared **important life lessons**, motivating students to see mathematics not just as a subject, but as a tool for problem-solving in real life.
+
+---
+
+## ⚡ 10:30 AM – 11:30 AM | BEEE Lecture – Professor Simranjeet Kaur (ECE Department)  
+The second session was a **Basic Electrical and Electronics Engineering (BEEE)** lecture delivered by **Professor Simranjeet Kaur** from the **ECE Department**.  
+The lecture introduced the fundamentals of electrical engineering, essential concepts for understanding modern technological systems.
+
+---
+
+## ☕ 11:30 AM – 12:30 PM | Break & Campus Exploration  
+After the morning academic sessions, students enjoyed a **lunch break** and took the opportunity to **explore the college campus**, interact with peers, and relax before the afternoon sessions began.
+
+---
+
+## 🎤 12:30 PM – 2:00 PM | Lecture by Dr. Arvind Dhingra – Auditorium  
+**Dr. Arvind Dhingra**, Director of STEP and Incharge of TAC, delivered a talk in the **Auditorium**.  
+He discussed **entrepreneurship, innovation, and technical advancement**, encouraging students to think beyond textbooks and focus on practical skills.
+
+---
+
+## 🧪 2:00 PM – 3:00 PM | Expert Lecture by Mr. Jasvir Singh Sekhon – Auditorium  
+**Mr. Jasvir Singh Sekhon**, District Resource Person (STEM), shared insights into **STEM education** and its importance in shaping future careers.  
+The session emphasized **hands-on learning, problem-solving skills, and scientific thinking**.
+
+---
+
+## 🧠 3:00 PM – 4:00 PM | Lecture by Dr. Lakhvir Singh Khana – Auditorium  
+The final session of the day was conducted by **Dr. Lakhvir Singh Khana**, Incharge of CML.  
+While the lecture covered important institutional details, it felt somewhat **boring and lengthy**, making it hard for students to stay engaged.
+
+---
+
+## 🎯 Conclusion  
+The sixth day of the induction program was packed with **knowledge-sharing sessions, campus experiences, and valuable advice**.  
+Although some lectures lacked excitement, the day provided **useful exposure** to academic tools, professional insights, and the overall college environment.
