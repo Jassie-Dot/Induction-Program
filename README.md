@@ -118,7 +118,7 @@ Important institutional details — though admittedly, a bit on the boring side.
 My induction program at **GNDEC Ludhiana** was a rollercoaster of **learning, interaction, inspiration, and occasional boredom**.  
 From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my **B.Tech journey** ahead. 🚀
 
-# 🏫 **B.Tech Orientation - Day 7 (August 7, 2025)**
+# 🏫 **B.Tech Induction - Day 7 (August 7, 2025)**
 
 Welcome to the detailed log of the seventh day of the B.Tech Orientation Program at **Guru Nanak Dev Engineering College (GNDEC), Ludhiana**. The day was filled with informative sessions, academic insights, and motivational interactions.
 
