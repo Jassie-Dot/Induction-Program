@@ -117,3 +117,67 @@ Important institutional details — though admittedly, a bit on the boring side.
 ## 🎯 **Final Thoughts**
 My induction program at **GNDEC Ludhiana** was a rollercoaster of **learning, interaction, inspiration, and occasional boredom**.  
 From spiritual beginnings to technical sessions, from motivational talks to campus explorations — these days laid the foundation for my **B.Tech journey** ahead. 🚀
+
+# 🏫 **B.Tech Orientation - Day 7 (August 7, 2025)**
+
+Welcome to the detailed log of the seventh day of the B.Tech Orientation Program at **Guru Nanak Dev Engineering College (GNDEC), Ludhiana**. The day was filled with informative sessions, academic insights, and motivational interactions.
+
+---
+
+## 🕘 **9:30 AM – 10:30 AM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Amrit Kamra (Incharge - DMC)*  
+
+The day began with an enlightening session by **Dr. Amrit Kamra**, the incharge of the **Departmental Monitoring Committee (DMC)**. The lecture took place in the **college auditorium**.  
+He guided the students about the importance of academic discipline, the role of DMC in maintaining standards, and how it supports students throughout their course duration.
+
+---
+
+## 🕥 **10:30 AM – 11:30 AM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Parminder Singh (Dean - Student Welfare)*  
+
+Following the first session, **Dr. Parminder Singh** took over the stage. He provided a comprehensive overview of various **student welfare facilities** available on campus.  
+He also introduced the students to a wide range of **clubs, societies, and extracurricular activities** that help foster personal growth, leadership, and social engagement during college life.
+
+---
+
+## 🕦 **11:30 AM – 12:30 PM**
+### 📍 *Venue: Auditorium*  
+### 👨‍🏫 *Speaker: Dr. Randhir Singh*  
+### 🎯 *Topic: "Conduct of Examination"*  
+
+The next lecture was conducted by **Dr. Randhir Singh**, where he explained the complete **examination process** followed at GNDEC.  
+The session covered critical rules, regulations, internal assessments, grading systems, and attendance policies.  
+Students were advised to follow proper conduct and integrity during examinations.
+
+---
+
+## 🕧 **12:30 PM – 1:30 PM**
+### 🍱 *Break Time*  
+
+Students were given a break to relax, have lunch, and refresh themselves before resuming with afternoon sessions.
+
+---
+
+## 🕜 **1:30 PM – 2:30 PM**
+### 📍 *Venue: Workshop Seminar Hall*  
+### 👥 *Session: P2P (Peer-to-Peer)*  
+
+An engaging **Peer-to-Peer (P2P) session** was held in the **Workshop Seminar Hall**, where **senior students** interacted with the newcomers.  
+They shared their personal experiences, provided tips for balancing academics with extracurriculars, and encouraged students to be proactive and confident.
+
+---
+
+## 🕝 **2:30 PM – 3:30 PM**
+### 📍 *Venue: Not specified*  
+### 👨‍🏫 *Lecture by: Professor Karan Bhalla (Chemistry)*  
+
+The final session of the day was a **Chemistry lecture** by **Professor Karan Bhalla**.  
+The lecture was informative and helped students revise key concepts while also getting familiar with the teaching methodology adopted in the first year.
+
+---
+
+### ✅ **Conclusion**  
+
+Overall, **Day 7** of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC.
